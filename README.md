@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do KermitGG 👍
+## Bem-vindo(a) ao perfil do Thiago Menezes 😎👍
 
  <div>
    <a href="https://github.com/kermitgg">
